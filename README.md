@@ -7,6 +7,4 @@ xsdffvbdbfdgs
 ghgfhfhd
 ghxfhfxgdz
 xcxcbvngnf
-bfgdgdsfsdsfa
-ddddddd
-bfghgfhsgse
+bf
