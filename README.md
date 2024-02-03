@@ -4,6 +4,3 @@ ASDAweweqw
 ssasdsa
 xsdffvb
 ghxfhfxgdz
-xcxcbvngnf
-bf
-iiufy
