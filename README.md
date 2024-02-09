@@ -3,8 +3,4 @@ ds
 ASDAweweqw
 ssasdsa
 xsdffvb
-ghxfhfxgdz
-fvzdfDC
-bcxbxbxbxc
-xZxScS
-пвкпыпвапыва
+ghxfhfxg
