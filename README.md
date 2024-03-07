@@ -1,10 +1,5 @@
 ssxhdwdw
 ds
 ASDAweweqw
-ssasdsa
-xsdffv
-yrsggrs
-tyysthdrg
+ssasds
 
-srdgrgttr
-lujdj
